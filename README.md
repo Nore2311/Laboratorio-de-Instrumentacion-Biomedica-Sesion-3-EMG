@@ -1,1 +1,1 @@
-# Laboratorio-de-Instrumentaci-n-Biom-dica---Sesi-n-3-EMG
+# Laboratorio-de-Instrumentación-Biomédica---Sesión-3-EMG
